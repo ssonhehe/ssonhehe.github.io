@@ -24,4 +24,4 @@
   일요일은 교회갑니다^.^
   
 
-[박서준을너무좋아해요] (http://tenasia.hankyung.com/webwp_kr/wp-content/uploads/2017/07/2017072614025342167-540x810.jpg)
+[박서준을너무좋아해요](http://tenasia.hankyung.com/webwp_kr/wp-content/uploads/2017/07/2017072614025342167-540x810.jpg)
